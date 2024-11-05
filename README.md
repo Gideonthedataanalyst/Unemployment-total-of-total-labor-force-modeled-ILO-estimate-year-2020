@@ -1,1 +1,6 @@
-# Unemployment-total-of-total-labor-force-modeled-ILO-estimate-year-2020
+# Unemployment-total-of-total-labor-force-modeled-ILO-estimate-year-2020![SQRT Transformation](https://github.com/user-attachments/assets/27d3ab2b-7fed-4291-83dc-697997bf3fac)
+![2020](https://github.com/user-attachments/assets/8e28fb71-a44a-49e9-b827-86af51e66bf7)
+![World unemployment visualized better](https://github.com/user-attachments/assets/cc407484-8c91-4bd0-9838-e59d71793855)
+![final map](https://github.com/user-attachments/assets/86e09793-4dc6-4379-a27b-01197ef5e331)
+![North and Sounth America](https://github.com/user-attachments/assets/c231a5ef-c031-4896-99bc-f10439bc5c52)
+![final 1](https://github.com/user-attachments/assets/6fb4a5a0-3807-4666-91d3-995ec6e99067)
